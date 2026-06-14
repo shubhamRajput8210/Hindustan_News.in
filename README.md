@@ -1,2 +1,2 @@
 # Hindustan_News.in
-Add website 
+https://github.io/Rajputanadal/Add website 
